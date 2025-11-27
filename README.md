@@ -1,4 +1,4 @@
-## Hi there 👋' # Brite Sendedza
+## Hi there 👋, I'm Brite Sendedza
 
 ### ☁️ AWS Cloud Infrastructure | 💻 Web Development | 🛡️ Cybersecurity
 
