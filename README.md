@@ -7,7 +7,7 @@
 | 📍 **Location** | Katlehong, South Africa |
 | 📧 **Email** | mbulahenibrite@gmail.com |
 | 📞 **Phone** | (068) 241 0370 |
-| 🔗 **Credly Profile** | [View my Certifications](https://www.credly.com/users/mbulaheni-brite-sendedza) |
+| 🔗 **Credly Profile** | # |
 
 ---
 
